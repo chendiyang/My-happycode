@@ -1,3 +1,3 @@
 # My-happycode
 too young too simple...
-Hello everyone,i'm a student comefrom China,i just want to be a brilliant programmer!and i still believe one senteces:"where there is a will, there is a way!".
+Hello everyone,i'm a student come from China,i just want to be a brilliant programmer! And i still believe one senteces:"where there is a will, there is a way!". so just do it !
